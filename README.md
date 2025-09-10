@@ -3,4 +3,5 @@
 
 
 
-hi here is a repo for crhc class
+weeeeeeeeee 這是課程的資源部分
+喜歡這堂課的話歡迎點個 ⭐️
